@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍💻 Coding Hobbyist | 🎮 Gamer | 🎤 ASMR<br><br>Hi, I’m Kaiden! A self-taught coder with a passion for exploring and creating in the world of programming. From building innovative injectors to tinkering with various technologies, I love diving into new challenges and learning as I go.<br><br>When I'm not coding, you can find me:<br><br>🔥 Engaging in private creative pursuits<br>🎮 Clutching rounds in Valorant or exploring other games<br><br>Feel free to connect or check out my projects! 🚀<br><br>
+👨‍💻 Coding Hobbyist | 🎮 Gamer | 🎤 ASMR<br><br>Hi, I’m Kaiden! A self-taught coder with a passion for exploring and creating in the world of programming. From building innovative injectors to tinkering with various technologies, I love diving into new challenges and learning as I go.<br><br>When I'm not coding, you can find me:<br><br>🔥 Engaging in private creative pursuits<br><br><br>Feel free to connect or check out my projects! 🚀<br><br>
 
 
 ## 🌐 Socials:
